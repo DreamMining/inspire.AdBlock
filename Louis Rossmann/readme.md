@@ -7,3 +7,4 @@
 - [The advertising industry calls us extremists; are you one too?](https://youtu.be/akeRz7ouICQ)
 - [Ad free YouTube client DELISTED from Google search results!](https://youtu.be/JgNArdQhoH4)
 - [Google's trying to DRM the internet, and we have to make sure they fail](https://youtu.be/0i0Ho-x7s_U)
+- [@EEVblog tries Youtube payola scam - this is a JOKE! 🤣](https://youtu.be/ejVDwP1kswA)
